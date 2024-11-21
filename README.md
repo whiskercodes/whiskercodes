@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @whiskercodes
+- 👀 I’m interested in Linux
+- 🌱 I’m currently learning CyberSecurity
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I dont have any fun facts to put here LOL
